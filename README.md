@@ -1,2 +1,3 @@
-# how_ai_capital_works
-See flow chart. 
+# How A.I. Capital Works 
+
+
