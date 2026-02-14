@@ -1,4 +1,4 @@
 # How A.I. Capital Works 
 
-![image info](Screenshot 2026-02-13 222310.png)
+![image info](Screenshot_2026-02-13_222310.png)
 
