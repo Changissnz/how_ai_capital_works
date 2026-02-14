@@ -24,3 +24,9 @@ and reality.
 ![image info](Gemini_Generated_Image_jart1zjart1zjart.png) 
 
 --------------------------------------------------------------------------------------------
+
+![image info](Gemini_Generated_Image_dkxbp7dkxbp7dkxb.png)
+
+--------------------------------------------------------------------------------------------
+
+![image info](Gemini_Generated_Image_k8oa71k8oa71k8oa.png)
