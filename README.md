@@ -1,4 +1,4 @@
 # How A.I. Capital Works 
 
-![image info](Gemini_Generated_Image_nysq7enysq7enysq.png)
+![image info](Screenshot 2026-02-13 222310.png)
 
